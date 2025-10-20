@@ -1,9 +1,5 @@
 # Yang Yundi
 
-Year 4 student at Raffles Girls’ Secondary School  
-yundi.yang09@rafflesgirlssch.edu.sg   
-\+65 9017 8066
-
 # **SUMMARY**
 
 Passionate, creative and curious student with experience in scientific research and visual arts. Eager to communicate and apply knowledge to new topics as well as learn along the way.
