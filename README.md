@@ -16,6 +16,9 @@ Passionate, creative and curious student with experience in scientific research 
   * 2023 Academic (Mathematics) Singapore Mathematical Olympiad Competition Junior Category–Bronze Award  
   * 2023 Academic (Mathematics) Singapore Mathematical Olympiad \- Junior–Silver Award  
   * 2025 Academic (Science) International Stem Olympiad Grade 10-Silver Award
+  * 2025 Academic (Science) Singapore Junior Chemistry Olympiad-Silver Award
+  * 2025 Academic (Science) Singapore Junior Biology Olympiad-Silver Award
+  * 2025 Academic (Science) International Chemistry Quiz Grade 10-Distinction Award
 
 ## **Class VIA: Project XOXO** *\- Committee Member*
 
