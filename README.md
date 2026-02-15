@@ -19,11 +19,15 @@ Passionate, creative and curious student with experience in scientific research 
   * 2025 Academic (Science) Singapore Junior Biology Olympiad-Silver Award
   * 2025 Academic (Science) International Chemistry Quiz Grade 10-Distinction Award
 
-## **Class VIA: Project XOXO** *\- Committee Member*
+## **Class VIA** *\- Committee Member*
 
 2022-2023
 
 * Volunteered at Ling Kwang Home for Senior Citizens
+
+## **INTERNSHIP EXPERIENCE**
+
+* Worked at Garena in the Roblox game development team from Oct-Dec 2025
 
 # **EDUCATION**
 
@@ -55,4 +59,4 @@ Developed advanced problem-solving skills through participation in Science and M
 
 Project & Time Management:
 
-Balanced academic research, freelance art projects, and competition preparation.
+Balanced academic research, freelance art projects, and competition preparation. Final products are delivered on time.
